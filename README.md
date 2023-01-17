@@ -93,7 +93,7 @@ We're here to help
 
 **Questions not listed above?**
 
-**Then join the official Aero groups and request help! [Join]()**
+**Then join the official Aero groups and request help! [Join](https://github.com/AeroInstagram/English/tree/main/Community)**
 
 <br><br><br>
 
